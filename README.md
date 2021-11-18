@@ -1,3 +1,3 @@
 # Hellur-Wurld
 
-I'm a new coder, writer, hardware enthusiast, and aspiring triathlete. 
+I'm a new coder, hardware enthusiast, cybersecurity student, gamer, reader, alive person, etc. 
